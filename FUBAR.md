@@ -1,1 +1,2 @@
-This is not the same joke that we wrote before because we got distracted by inappropriate comments. I'm smert.
+This is Bob and Carol. Coding is no joke, but my love life is. -Carol
+
