@@ -45,3 +45,19 @@ hfa sdf CHAOS aldkgahsdglkashegaslkdghaslkdgkkashdgasd
 g
 
 ^= alright, lets break this some more one more timexs
+ads
+s
+af
+as
+sad
+sdf
+as
+FREEEDOM
+saf
+asdgasdg
+asg
+asfd
+HOT DOGS
+asf
+sadf
+sdfladsfaksdfadsf
