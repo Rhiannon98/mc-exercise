@@ -34,5 +34,13 @@ shstr
 hertj
 shj
 
+<<<<<<< HEAD
 ^= operator I think that I broke Max
 Maybe
+=======
+
+
+adslgagdhaskldghasga badslghasdghasd'fiasd
+hfa sdf CHAOS aldkgahsdglkashegaslkdghaslkdgkkashdgasd
+g
+>>>>>>> 1e55208682972618e7d6c665b3ea7752735f92f2
