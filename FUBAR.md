@@ -8,6 +8,7 @@ merge conflict 2? ish? aybe?
 
 maybe conflict 3?
 
+okay, now I am thoroughly confused
 This is Bob and Carol. Coding is no joke, but my love life is. -Carol
 
 alskfashdfasdghalsf
@@ -32,3 +33,31 @@ jtrs
 shstr
 hertj
 shj
+
+^= operator I think that I broke Max
+Maybe
+
+yup, definitely
+=v
+
+adslgagdhaskldghasga badslghasdghasd'fiasd
+hfa sdf CHAOS aldkgahsdglkashegaslkdghaslkdgkkashdgasd
+g
+
+^= alright, lets break this some more one more timexs
+ads
+s
+af
+as
+sad
+sdf
+as
+FREEEDOM
+saf
+asdgasdg
+asg
+asfd
+HOT DOGS
+asf
+sadf
+sdfladsfaksdfadsf
