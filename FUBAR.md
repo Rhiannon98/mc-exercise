@@ -37,6 +37,8 @@ shj
 ^= operator I think that I broke Max
 Maybe
 
+yup, definitely
+=v
 
 adslgagdhaskldghasga badslghasdghasd'fiasd
 hfa sdf CHAOS aldkgahsdglkashegaslkdghaslkdgkkashdgasd
