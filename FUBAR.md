@@ -34,17 +34,27 @@ shstr
 hertj
 shj
 
+^= operator I think that I broke Max
+Maybe
 
 
 adslgagdhaskldghasga badslghasdghasd'fiasd
 hfa sdf CHAOS aldkgahsdglkashegaslkdghaslkdgkkashdgasd
 g
 
-adsf
-asdf
-sadf
-adsf
-adsf
 ads
-gasdg
-asdg
+s
+af
+as
+sad
+sdf
+as
+FREEEDOM
+saf
+asdgasdg
+asg
+asfd
+HOT DOGS
+asf
+sadf
+sdfladsfaksdfadsf
